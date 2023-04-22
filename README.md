@@ -34,3 +34,6 @@ bsdavcsdahbcxhasbcasb
 bs cbascnas
 bsdvxahsbc
 cb sbdn cnsa
+SUIE 
+YPER 32R
+EWRU
